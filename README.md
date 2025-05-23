@@ -1,1 +1,1 @@
-# AI_VICTORY
+AI Victory nace de la pasión por la inteligencia artificial y el deseo de hacerla accesible a todos. Nuestra misión es ser el punto de encuentro para explorar, aprender y comprender el vasto y dinámico mundo de la IA.
